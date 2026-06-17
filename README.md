@@ -1,2 +1,2 @@
 # Afshan-Fatima
-Allah is the greatest 
+Allah is the greatest     
